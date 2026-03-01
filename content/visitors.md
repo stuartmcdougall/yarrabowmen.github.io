@@ -6,8 +6,13 @@ title: 'Visitors'
 
 ## Visiting Archers
 
-If you already have a membership with an Archery Australia affiliated club, you can shoot at Yarra Bowmen once you have shown **evidence of current financial membership** in your home club. To ensure access, best check with committee members if anyone is at the premises when you arrive. You can make contact via [our Facebook page](https://www.facebook.com/YarraBowmenBulleen) beforehand. Sunday mornings are also relatively reliable times to meet members, weather permitting. On arrival, please pay the **daily shooting fee of $10** through a member or the money box next to the fridge.
+If you already have a membership with an Archery Australia affiliated club, you can shoot at Yarra Bowmen once you have shown **evidence of current financial membership** at your home club. To ensure access, best check with committee members if anyone is at the premises when you arrive. You can make contact via [our Facebook page](https://www.facebook.com/YarraBowmenBulleen) beforehand. Sunday mornings are also relatively reliable times to meet members, weather permitting. On arrival, please pay the **daily shooting fee of $10** through a member or the money box next to the fridge.
 
-## Temporary Players
+Our weekly shoot is from 0800-1100 on Sunday mornings at the club. This is the best time to catch a committee member in person. Otherwise we should respond to you shortly.
 
-If you are not yet a member of an archery club, you have to provide **evidence of basic competence**, e.g. a certificate of an introductory archery course. Again, you have to ensure members are at the club when you arrive, which you can do via the [Yarra Bowmen Facebook page](https://www.facebook.com/YarraBowmenBulleen). Once a member has ascertained that you are competent and aware of safety procedures, you can sign a **temporary player form** for insurance purposes. You can then pay the **$10 daily shooting fee**. This does not include any equipment hire. If you need equipment, please get in touch before you arrive.
+
+## Temporary Participants
+
+If you are not yet a member of an archery club, you have to provide **evidence of basic competence**, e.g. a certificate of an introductory archery course (From Mobile Archery or Anbrose Archery). Again, you have to ensure members are at the club when you arrive, which you can do via the [Yarra Bowmen Facebook page](https://www.facebook.com/YarraBowmenBulleen). Once a member has ascertained that you are competent and aware of safety procedures, you can sign a **temporary player form** for insurance purposes. You can then pay the **$10 daily shooting fee**. This does not include any equipment hire. If you need equipment, please get in touch before you arrive.
+
+Our weekly shoot is from 0800-1100 on Sunday mornings at the club. This is the best time to catch a committee member in person. Otherwise we should respond to you shortly.
